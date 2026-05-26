@@ -1,5 +1,5 @@
 # Modern Amenities That Define Premium Township Living at Indraprastham City
-
+![Indraprastham City](indraprasthamcity.avif)
 A complete guide to premium township living, gated community plots, and modern lifestyle amenities shaping real estate in Madurai outskirts.
 
 ---
